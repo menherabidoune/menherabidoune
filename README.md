@@ -1,6 +1,6 @@
 ### Bidoune
 **Age:** 16
-**Pronouns:** She/Her
+**Pronouns:** She/Her \n
 **Interests:**
 - cats
 - Playing minecraft
