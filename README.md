@@ -4,5 +4,5 @@
 **Interests:**
 - cats
 - Playing minecraft
-- Editing
+- Video editing
 - Coding
