@@ -1,5 +1,5 @@
 ### Bidoune
-**Age:** 16
+**Age:** 17
 **Pronouns:** She/Her
 **Interests:**
 - cats
